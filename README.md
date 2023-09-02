@@ -51,10 +51,10 @@ This project is licensed under the MIT License.
 
 ## Contact
 
-If you have any questions or want to connect, you can reach me at - sanskar.purohit946@gmail.com.
+If you have any questions or want to connect, you can reach me at - sangeetha000sangi@gmail.com.
 
 Thanks & Regards,
 
-Sanskar Purohit
+San
 
 ---
